@@ -1,0 +1,1 @@
+Un postre frío súper fácil de preparar, muy popular en México, hecho a base de capas de galletas Marías intercaladas con crema de limón. También conocido como Postre o Dulce de Limón.
